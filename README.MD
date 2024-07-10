@@ -1,4 +1,7 @@
-# Afrikaans 53 Bible Translation in Markdown (including KJV)
+## Afrikaans 53 Bible Translation in Markdown 
+##### *(including KJV)*
+
+***
 
 Simple Markdown files of all the bible verses in the Afrikaans 53 Bible Translation. 
 The Markdown format of the Bible is based on the same format used by Joschua from the below video.
@@ -17,7 +20,7 @@ The API used for the bible content is from getbible.net
 I've included the code used to generate the bible. It's needs more work should you require to use it to download other bible versions.
 
 
-## Installation
+### Installation
 
 Download the repository and copy the Afrikaans folder to your Obsidian vault.
 
