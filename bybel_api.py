@@ -39,8 +39,8 @@ def header_navbar(book, chapter, has_next_chapter = True):
     
 
 
-aov = requests.get(aov_link).json()
-folder = './Afrikaans'
+aov = requests.get(kjv_link).json()
+folder = './KJV'
 for book in aov['books']:
     book_name = book['name']
     short_book_name = book['name'][:3]
