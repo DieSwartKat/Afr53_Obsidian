@@ -18,6 +18,7 @@ The API used for the bible content is from getbible.net
 [GetBible available translations](https://api.getbible.net/v2/translations.json)
 
 I've included the code used to generate the bible. It's needs more work should you require to use it to download other bible versions.
+Used python 3.11
 
 
 ### Installation
