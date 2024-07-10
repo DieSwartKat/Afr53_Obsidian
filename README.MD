@@ -1,4 +1,4 @@
-# Afrikaans 53 Bible Translation in Markdown
+# Afrikaans 53 Bible Translation in Markdown (including KJV)
 
 Simple Markdown files of all the bible verses in the Afrikaans 53 Bible Translation. 
 The Markdown format of the Bible is based on the same format used by Joschua from the below video.
