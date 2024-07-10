@@ -1,0 +1,25 @@
+# Jesaja 35
+
+[[Jes-34|← Jesaja 34]] | [[Jesaja]] | [[Jes-36|Jesaja 36 →]]
+***
+
+###### v1
+Die woestyn en die dor land sal bly wees, en die wildernis sal juig en bloei soos 'n narsing; 
+###### v2
+dit sal lustig bloei en juig, ja, met gejuig en gejubel; die heerlikheid van die Líbanon is aan hom gegee, die sieraad van Karmel en Saron; hulle dáár sal sien die heerlikheid van die HERE, die sieraad van onse God. 
+###### v3
+Versterk die slap hande en maak die struikelende knieë vas. 
+###### v4
+Sê aan die wat vervaard is van hart: Wees sterk, wees nie bevrees nie! Kyk, julle God kom met wraak, met goddelike vergelding; Hy self sal kom en julle verlos. 
+###### v5
+Dan sal die oë van die blindes geopen en die ore van die dowes ontsluit word. 
+###### v6
+Dan sal die lamme spring soos 'n takbok, en die tong van die stomme sal jubel; want in die woestyn breek waters uit en strome in die wildernis. 
+###### v7
+En die gloeiende grond sal 'n waterplas word, en die dorsland fonteine van water; in die plek van die jakkalse waar hulle gelê en rus het, is gras met riete en biesies. 
+###### v8
+En dáár sal 'n grootpad wees en 'n weg wat die heilige weg genoem sal word; geen onreine sal daarop voorttrek nie, maar vir húlle sal dit wees; wie die weg bewandel — selfs die dwase sal nie dwaal nie. 
+###### v9
+Dáár sal geen leeu wees nie, en geen verskeurende dier sal daarop kom of daar aangetref word nie; maar die verlostes sal daarop wandel; 
+###### v10
+en die losgekooptes van die HERE sal teruggaan en na Sion kom met gejubel, en ewige vreugde sal op hulle hoof wees; vreugde en blydskap sal hulle verkry, maar kommer en gesug vlug weg. 

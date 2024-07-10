@@ -1,0 +1,29 @@
+# Prediker 6
+
+[[Pre-05|← Prediker 05]] | [[Prediker]] | [[Pre-07|Prediker 07 →]]
+***
+
+###### v1
+Daar is 'n onheil wat ek gesien het onder die son, en wat swaar druk op die mensdom: 
+###### v2
+'n Man aan wie God rykdom en skatte en eer gee, sodat hom niks ontbreek van alles wat hy kan begeer nie, maar God stel hom nie in staat om daarvan te geniet nie, want 'n vreemde geniet dit; dit is vergeefse moeite en 'n bitter lyding. 
+###### v3
+As 'n man honderd kinders verwek en baie jare lewe en die dae van sy jare baie is en sy siel nie genoeg kry van die goeie en hy ook nie 'n begrafnis het nie, dan sê ek: 'n Misgeboorte is beter as hy, 
+###### v4
+want in nietigheid kom dit, en in duisternis gaan dit heen, en met duisternis word die naam daarvan bedek; 
+###### v5
+ook het dit die son nie gesien of geken nie. Dit het meer rus as hy. 
+###### v6
+Ja, al lewe hy ook twee maal duisend jaar en geniet nie die goeie nie — gaan nie alles na een en dieselfde plek nie? 
+###### v7
+Al die moeitevolle arbeid van 'n mens is vir sy mond, en tog word die begeerte nie bevredig nie. 
+###### v8
+Want watter voorkeur het die wyse bo die dwaas, watter voorkeur die arme wat weet om hom te beweeg onder die lewendes? 
+###### v9
+Die aanskouing met die oë is beter as die geswerf van die begeerte. Ook dit is tevergeefs en 'n gejaag na wind. 
+###### v10
+Wat hy ook is, lankal is sy naam genoem, en dit is bekend dat hy mens is: hy kan nie in die gereg gaan met Hom wat sterker is as hy nie. 
+###### v11
+Want hoe meer woorde, des te meer vermeerder hulle die nietigheid; watter voordeel het die mens daarvan? 
+###### v12
+Want wie weet wat goed is vir die mens in die lewe gedurende die getal dae van sy nietige lewe wat hy soos 'n skaduwee deurbring? Want wie kan aan die mens bekend maak wat ná hom sal wees onder die son? 

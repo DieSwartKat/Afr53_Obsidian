@@ -1,0 +1,49 @@
+# Deuteronomium 18
+
+[[Deu-17|← Deuteronomium 17]] | [[Deuteronomium]] | [[Deu-19|Deuteronomium 19 →]]
+***
+
+###### v1
+Die Levitiese priesters, die hele stam van Levi, mag geen deel of erfenis saam met Israel hê nie; van die vuuroffers van die HERE en van sy erfdeel moet hulle eet. 
+###### v2
+En hy mag geen erfdeel hê onder sy broers nie; die HERE is sy erfdeel soos Hy hom beloof het. 
+###### v3
+En dit moet die reg van die priesters wees van die kant van die volk, van die wat 'n slagoffer bring, of dit 'n bees of 'n stuk kleinvee is: hulle moet aan die priester die blad en die twee kakebene en die maag gee. 
+###### v4
+Die eerstelinge van jou koring, jou mos en jou olie en die eerstelinge van die skeersel van jou kleinvee moet jy aan hom gee. 
+###### v5
+Want die HERE jou God het hom uit al jou stamme uitverkies, dat hy altyd kan staan om te dien in die Naam van die HERE, hy en sy seuns. 
+###### v6
+En as 'n Leviet uit een van jou poorte kom, uit die hele Israel waar hy as vreemdeling vertoef, en hy na hartelus kom na die plek wat die HERE sal uitkies, 
+###### v7
+dan moet hy dien in die Naam van die HERE sy God soos al sy broers, die Leviete, wat daar voor die aangesig van die HERE staan; 
+###### v8
+'n gelyke aandeel moet hulle geniet, behalwe wat hy verkoop volgens familiebesit. 
+###### v9
+As jy kom in die land wat die HERE jou God jou sal gee, moet jy nie leer om volgens die gruwels van daardie nasies te doen nie. 
+###### v10
+Daar mag niemand by jou gevind word wat sy seun of sy dogter deur die vuur laat deurgaan — wat met waarsêery, goëlery of met verklaring van voortekens of towery omgaan nie, 
+###### v11
+of wat met besweringe omgaan, of wat 'n gees van 'n afgestorwene vra of 'n gees wat waarsê, of wat die dooies raadpleeg nie. 
+###### v12
+Want elkeen wat hierdie dinge doen, is vir die HERE 'n gruwel; en om hierdie gruwels ontwil verdryf die HERE jou God hulle voor jou uit. 
+###### v13
+Opreg moet jy wees met die HERE jou God. 
+###### v14
+Want hierdie nasies wat jy uit hulle besitting verdrywe, luister na goëlaars en waarsêers; maar wat jou aangaan, die HERE jou God het jou nie so iets toegelaat nie. 
+###### v15
+'n Profeet uit jou midde, uit jou broers, soos ek is, sal die HERE jou God vir jou verwek; na Hom moet julle luister — 
+###### v16
+net soos jy van die HERE jou God by Horeb gevra het toe jy op die dag van die vergadering gesê het: Ek kan die stem van die HERE my God nie langer hoor en hierdie groot vuur nie meer sien nie, anders sterf ek. 
+###### v17
+Toe het die HERE vir my gesê: Dit is goed wat hulle gespreek het. 
+###### v18
+'n Profeet sal Ek vir hulle verwek uit die midde van hulle broers, soos jy is, en Ek sal my woorde in sy mond lê, en Hy sal aan hulle sê alles wat Ek Hom beveel. 
+###### v19
+En die man wat nie luister na my woorde wat Hy in my Naam spreek nie, van hom sal Ek self rekenskap afeis. 
+###### v20
+Maar die profeet wat so vermetel is om 'n woord in my Naam te spreek wat Ek hom nie beveel het om te spreek nie, of wat in die naam van ander gode spreek, dié profeet moet sterwe. 
+###### v21
+En as jy in jou hart sê: Hoe sal ons die woord weet wat die HERE nie gespreek het nie? — 
+###### v22
+as die profeet in die Naam van die HERE spreek, en wat hy gesê het, gebeur nie en kom nie uit nie, dan is dit die woord wat die HERE nie gespreek het nie; deur vermetelheid het die profeet dit gespreek; jy mag vir hom nie bang wees nie. 

@@ -1,0 +1,25 @@
+# Esegiël 2
+
+[[Ese-01|← Esegiël 01]] | [[Esegiël]] | [[Ese-03|Esegiël 03 →]]
+***
+
+###### v1
+En Hy het vir my gesê: Mensekind, staan op jou voete, dat Ek met jou kan spreek. 
+###### v2
+En die Gees het in my gekom sodra Hy met my gespreek het, en my op my voete laat staan; en ek het Hom gehoor wat met my gespreek het. 
+###### v3
+Hy sê toe vir my: Mensekind, Ek stuur jou na die kinders van Israel, na die opstandige nasies wat teen My opgestaan het; hulle en hul vaders het teen My oortree tot hierdie selfde dag toe. 
+###### v4
+En die kinders is hard van aangesig en verstok van hart. Ek stuur jou na hulle, en jy moet vir hulle sê: So spreek die Here HERE! 
+###### v5
+Maar of hulle nou al luister of nie — want hulle is 'n wederstrewige huis — hulle sal moet erken dat daar 'n profeet in hulle midde gewees het. 
+###### v6
+En jy, mensekind, wees nie vir hulle of vir hulle woorde bevrees nie, omdat distels en dorings by jou is, en jy by skerpioene woon; wees nie bevrees vir hulle woorde en wees voor hulle aangesig nie verskrik nie, want hulle is 'n wederstrewige huis. 
+###### v7
+Maar jy moet hulle my woorde verkondig, of hulle al luister of nie; want hulle is wederstrewig. 
+###### v8
+Maar jy, mensekind, luister na wat Ek jou sê; wees nie wederstrewig soos die wederstrewige huis nie; maak jou mond wyd oop, en eet wat Ek jou gee. 
+###### v9
+Toe kyk ek, en daar was 'n hand na my toe uitgesteek, en daarin 'n boekrol! 
+###### v10
+En Hy het dit voor my uitgesprei; en dit was beskrywe op die voor— en agterkant, en daarop was geskrywe klaagliedere en gesug en wee. 

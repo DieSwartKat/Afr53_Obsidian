@@ -1,0 +1,97 @@
+# Deuteronomium 1
+
+[[Deuteronomium]] | [[Deu-02|Deuteronomium 02 →]]
+***
+
+###### v1
+Dit is die woorde waarmee Moses die hele Israel toegespreek het oos van die Jordaan in die woestyn, in die Vlakte teenoor Suf, tussen Paran en Tofel en Laban en Háserot en Di-Sahab. 
+###### v2
+Elf dae is die pad van Horeb af na die gebergte Seïr tot by Kades-Barnéa. 
+###### v3
+En in die veertigste jaar, in die elfde maand, op die eerste van die maand, het Moses met die kinders van Israel gespreek net soos die HERE ten opsigte van hulle aan hom bevel gegee het; 
+###### v4
+nadat hy Sihon, die koning van die Amoriete, wat in Hesbon gewoon het, en Og, die koning van Basan, wat in Astarot gewoon het, in Edréï verslaan het. 
+###### v5
+Oos van die Jordaan in die land Moab het Moses onderneem om hierdie wet te verklaar deur te sê: 
+###### v6
+Die HERE onse God het met ons by Horeb gespreek en gesê: Julle het lank genoeg by hierdie berg gebly. 
+###### v7
+Trek weg en breek op en gaan na die gebergte van die Amoriete en na al sy naburige plekke: die Vlakte, die Gebergte en die Laeveld en die Suidland en by die seekus — die land van die Kanaäniete en die Líbanon, tot by die groot rivier, die Eufraatrivier. 
+###### v8
+Kyk, Ek gee die land aan julle oor; gaan in en neem die land in besit wat die HERE aan julle vaders Abraham, Isak en Jakob met 'n eed beloof het om dit aan hulle te gee en aan hulle nageslag ná hulle. 
+###### v9
+En ek het met julle in dié tyd gespreek en gesê: Ek kan julle alleen nie dra nie. 
+###### v10
+Die HERE julle God het julle vermenigvuldig; en kyk, julle is vandag soos die sterre van die hemel in menigte. 
+###### v11
+Mag die HERE, die God van julle vaders, by julle byvoeg duisend maal soveel as wat julle is, en julle seën soos Hy julle beloof het! 
+###### v12
+Hoe sou ek die moeilikheid en die las en die regsake van julle alleen kan dra? 
+###### v13
+Bring tog wyse en verstandige en ervare manne aan volgens julle stamme, dat ek hulle as julle hoofde kan aanstel. 
+###### v14
+Hierop het julle my geantwoord en gesê: Die woord wat u gespreek het, is goed om uit te voer. 
+###### v15
+Toe het ek die hoofde van julle stamme, wyse en ervare manne, geneem en hulle as hoofde oor julle aangestel, owerstes oor duisend en owerstes oor honderd en owerstes oor vyftig en owerstes oor tien en opsigters volgens julle stamme. 
+###### v16
+En ek het in dié tyd aan julle regters bevel gegee en gesê: Neem julle broers in verhoor en oordeel regverdig tussen 'n man en sy broer en die vreemdeling wat by hom is. 
+###### v17
+Julle mag in die gereg nie partydig wees nie; julle moet klein sowel as groot aanhoor; julle mag niemand ontsien nie, want die gereg is die saak van God. Maar die saak wat vir julle te moeilik is, moet julle na my toe bring, en ek sal dit in verhoor neem. 
+###### v18
+So het ek julle dan in dié tyd al die dinge beveel wat julle moet doen. 
+###### v19
+Toe het ons van Horeb af opgebreek, en ons het daardie hele groot en vreeslike woestyn deurgetrek wat julle op pad na die gebergte van die Amoriete gesien het, soos die HERE onse God ons beveel het; en ons het tot by Kades-Barnéa gekom. 
+###### v20
+Toe het ek vir julle gesê: Julle het tot by die gebergte van die Amoriete gekom wat die HERE onse God aan ons sal gee. 
+###### v21
+Kyk, die HERE jou God het die land aan jou oorgegee; trek op, neem dit in besit soos die HERE, die God van jou vaders, jou gesê het; wees nie bevrees en wees nie verskrik nie. 
+###### v22
+Toe het julle almal na my toe aangekom en gesê: Laat ons manne voor ons uit stuur, dat hulle vir ons die land kan verken en ons berig kan bring aangaande die pad waarlangs ons moet optrek, en die stede waarby ons sal kom. 
+###### v23
+En die saak was goed in my oë, sodat ek twaalf man uit julle, uit elke stam een man, geneem het. 
+###### v24
+En hulle het weggedraai en na die gebergte opgetrek en tot by die dal Eskol gekom en dit verken. 
+###### v25
+Hulle het toe van die vrugte van die land met hulle saamgeneem en dit na ons afgebring en aan ons verslag gegee en gesê: Die land wat die HERE onse God aan ons sal gee, is goed. 
+###### v26
+Maar julle wou nie optrek nie, maar was wederstrewig teen die bevel van die HERE julle God. 
+###### v27
+En julle het in jul tente gemurmureer en gesê: Omdat die HERE ons haat, het Hy ons uit Egipteland uitgelei om ons in die hand van die Amoriete oor te gee, dat hulle ons verdelg. 
+###### v28
+Waarheen moet ons optrek? Ons broers het ons hart laat versmelt deur te sê: Dit is 'n volk groter en hoër van gestalte as ons; die stede is groot en tot aan die hemel versterk; en ons het daar ook die kinders van die Enakiete gesien. 
+###### v29
+Toe het ek aan julle gesê: Word nie verskrik en wees nie bevrees vir hulle nie. 
+###### v30
+Die HERE julle God wat voor jul uit trek, Hy sal vir julle stry net soos Hy voor julle oë met julle in Egipte gedoen het 
+###### v31
+en in die woestyn, waar jy gesien het hoe die HERE jou God jou gedra het soos 'n man sy seun dra, op die hele pad wat julle getrek het, totdat julle tot by hierdie plek gekom het. 
+###### v32
+Maar ondanks hierdie woord het julle nie geglo in die HERE julle God nie, 
+###### v33
+wat voor julle uit getrek het op die pad om vir julle 'n plek uit te soek om julle laer op te slaan, snags in die vuur om julle te laat sien op die pad waar julle langs moes trek, en bedags in die wolk. 
+###### v34
+En toe die HERE die stem van julle woorde hoor, het Hy toornig geword en gesweer en gesê: 
+###### v35
+Waarlik, geeneen van hierdie manne, hierdie verkeerde geslag, sal die goeie land sien wat Ek met 'n eed beloof het om aan julle vaders te gee nie — 
+###### v36
+behalwe Kaleb, die seun van Jefúnne; hy sal dit sien, en aan hom en sy kinders sal Ek die land gee waarop hy geloop het, omdat hy volhard het om die HERE te volg. 
+###### v37
+Ook was die HERE toornig op my om julle ontwil, sodat Hy gesê het: Jy sal daar ook nie inkom nie. 
+###### v38
+Josua, die seun van Nun, wat voor jou staan — hy sal daar inkom; versterk hom, want hy sal Israel dit laat beërwe. 
+###### v39
+En julle kindertjies van wie julle gesê het: Hulle sal 'n buit word! en julle kinders wat vandag van geen goed of kwaad weet nie — húlle sal daar inkom en aan hulle sal Ek dit gee, en húlle sal dit in besit neem. 
+###### v40
+Maar julle, draai om en trek weg na die woestyn op pad na die Skelfsee. 
+###### v41
+Toe het julle geantwoord en vir my gesê: Ons het teen die HERE gesondig; ons self sal optrek en veg net soos die HERE onse God ons beveel het. En toe julle elkeen sy oorlogswapens aangord en daar nog maklik oor dink om in die gebergte op te trek, 
+###### v42
+het die HERE vir my gesê: Sê vir hulle: Julle mag nie optrek en veg nie — want Ek is nie in julle midde nie — dat julle nie voor julle vyande verslaan word nie. 
+###### v43
+Maar toe ek met julle gespreek het, het julle nie geluister nie, maar julle was wederstrewig teen die bevel van die HERE en het vermetel in die gebergte opgetrek. 
+###### v44
+Toe het die Amoriete wat in dié gebergte gewoon het, uitgetrek julle tegemoet en julle agtervolg soos die bye maak; en hulle het julle verstrooi in Seïr tot by Horma. 
+###### v45
+En julle het teruggekom en voor die aangesig van die HERE geween, maar die HERE het na julle stem nie geluister en julle geen gehoor gegee nie. 
+###### v46
+So het julle dan baie dae in Kades gebly, solank as julle daar gebly het. 

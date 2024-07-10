@@ -1,0 +1,67 @@
+# Johannes 14
+
+[[Joh-13|← Johannes 13]] | [[Johannes]] | [[Joh-15|Johannes 15 →]]
+***
+
+###### v1
+Laat julle hart nie ontsteld word nie; glo in God, glo ook in My. 
+###### v2
+In die huis van my Vader is daar baie wonings; as dit nie so was nie, sou Ek dit vir julle gesê het. Ek gaan om vir julle plek te berei. 
+###### v3
+En as Ek gegaan en vir julle plek berei het, kom Ek weer en sal julle na My toe neem, sodat julle ook kan wees waar Ek is. 
+###### v4
+En waar Ek heengaan, weet julle en die weg ken julle. 
+###### v5
+Thomas sê vir Hom: Here, ons weet nie waar U gaan nie, en hoe kan ons die weg ken? 
+###### v6
+Jesus antwoord hom: Ek is die weg en die waarheid en die lewe; niemand kom na die Vader behalwe deur My nie. 
+###### v7
+As julle My geken het, sou julle my Vader ook geken het, en van nou af ken julle Hom en het julle Hom gesien. 
+###### v8
+Filippus sê vir Hom: Here, toon ons die Vader, en dit is vir ons genoeg. 
+###### v9
+Jesus sê vir hom: Ek is so lankal by julle, en het jy My nie geken nie, Filippus? Hy wat My gesien het, het die Vader gesien. En hoe sê jy: Toon ons die Vader? 
+###### v10
+Glo jy nie dat Ek in die Vader is en die Vader in My nie? Die woorde wat Ek tot julle spreek, spreek Ek nie uit Myself nie; maar die Vader wat in My bly, Hy doen die werke. 
+###### v11
+Glo My dat Ek in die Vader is, en die Vader in My; of anders, glo My ter wille van die werke self. 
+###### v12
+Voorwaar, voorwaar Ek sê vir julle, wie in My glo — die werke wat Ek doen, sal hy ook doen; en hy sal groter werke doen as dit, omdat Ek na my Vader gaan. 
+###### v13
+En wat julle ook al in my Naam mag vra, dit sal Ek doen, sodat die Vader in die Seun verheerlik kan word. 
+###### v14
+As julle iets in my Naam vra, sal Ek dit doen. 
+###### v15
+As julle My liefhet, bewaar my gebooie. 
+###### v16
+En Ek sal die Vader bid, en Hy sal julle 'n ander Trooster gee om by julle te bly tot in ewigheid: 
+###### v17
+die Gees van die waarheid wat die wêreld nie kan ontvang nie, omdat dit Hom nie sien en Hom nie ken nie; maar julle ken Hom, omdat Hy by julle bly en in julle sal wees. 
+###### v18
+Ek sal julle nie as wese agterlaat nie; Ek kom weer na julle toe. 
+###### v19
+Nog 'n klein tydjie, en die wêreld sien My nie meer nie; maar julle sien My, omdat Ek lewe en julle sal lewe. 
+###### v20
+In dié dag sal julle weet dat Ek in my Vader is, en julle in My, en Ek in julle. 
+###### v21
+Wie my gebooie het en dié bewaar, dit is hy wat My liefhet; en wie My liefhet, hóm sal my Vader liefhê, en Ek sal hom liefhê en My aan hom openbaar. 
+###### v22
+Judas, nie die Iskáriot nie, sê vir Hom: Here, hoe is dit dat U aan ons U sal openbaar en nie aan die wêreld nie? 
+###### v23
+Jesus antwoord en sê vir hom: As iemand My liefhet, sal hy my woord bewaar, en my Vader sal hom liefhê, en Ons sal na hom toe kom en by hom woning maak. 
+###### v24
+Hy wat My nie liefhet nie, bewaar my woorde nie; en die woord wat julle hoor, is nie myne nie, maar is van die Vader wat My gestuur het. 
+###### v25
+Dit het Ek tot julle gespreek terwyl Ek by julle bly; 
+###### v26
+maar die Trooster, die Heilige Gees, wat die Vader in my Naam sal stuur, Hy sal julle alles leer en sal julle herinner aan alles wat Ek vir julle gesê het. 
+###### v27
+Vrede laat Ek vir julle na, my vrede gee Ek aan julle; nie soos die wêreld gee, gee Ek aan julle nie. Laat julle hart nie ontsteld word en bang wees nie. 
+###### v28
+Julle het gehoor dat Ek aan julle gesê het: Ek gaan weg en Ek kom weer na julle toe. As julle My liefgehad het, sou julle bly wees dat Ek gesê het: Ek gaan na my Vader, omdat my Vader groter is as Ek. 
+###### v29
+En nou het Ek dit aan julle gesê voordat dit gebeur, sodat julle kan glo wanneer dit gebeur. 
+###### v30
+Ek sal nie veel meer met julle spreek nie; want die owerste van hierdie wêreld kom en het aan My niks nie. 
+###### v31
+Maar dat die wêreld kan weet dat Ek die Vader liefhet en doen net soos die Vader My beveel het — staan op, laat ons hiervandaan weggaan. 

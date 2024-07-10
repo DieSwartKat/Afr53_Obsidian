@@ -1,0 +1,93 @@
+# Lukas 4
+
+[[Luk-03|← Lukas 03]] | [[Lukas]] | [[Luk-05|Lukas 05 →]]
+***
+
+###### v1
+En Jesus het vol van die Heilige Gees teruggekeer van die Jordaan af, en is deur die Gees in die woestyn gelei, 
+###### v2
+waar Hy veertig dae lank deur die duiwel versoek is; en Hy het niks geëet in dié dae nie; en toe hulle verby was, het Hy naderhand honger geword. 
+###### v3
+Toe sê die duiwel vir Hom: As U die Seun van God is, sê vir hierdie klip dat dit brood moet word. 
+###### v4
+Maar Jesus antwoord en sê vir hom: Daar is geskrywe: Die mens sal nie van brood alleen lewe nie, maar van elke woord van God. 
+###### v5
+Toe bring die duiwel Hom op 'n hoë berg en wys Hom al die koninkryke van die wêreld in 'n oomblik se tyd. 
+###### v6
+En die duiwel sê vir Hom: Ek sal U al hierdie mag gee en hulle heerlikheid, want dit is aan my oorgegee, en ek gee dit aan wie ek wil. 
+###### v7
+As U my dan aanbid, sal alles aan U behoort. 
+###### v8
+En Jesus antwoord en sê vir hom: Gaan weg agter My, Satan, want daar is geskrywe: Die Here jou God moet jy aanbid en Hom alleen dien. 
+###### v9
+Toe bring hy Hom na Jerusalem en stel Hom op die dak van die tempel en sê vir Hom: As U die Seun van God is, werp Uself hiervandaan neer. 
+###### v10
+Want daar is geskrywe: Hy sal sy engele bevel gee aangaande U om U te bewaar, 
+###### v11
+en hulle sal U op die hande dra, sodat U nie miskien u voet teen 'n klip stamp nie. 
+###### v12
+En Jesus antwoord en sê vir hom: Daar is gesê: Jy mag die Here jou God nie versoek nie. 
+###### v13
+En toe die duiwel elke versoeking geëindig het, het hy 'n tyd lank van Hom gewyk. 
+###### v14
+En Jesus het in die krag van die Gees na Galiléa teruggekeer, en daar het 'n gerug aangaande Hom deur die hele omtrek uitgegaan; 
+###### v15
+en Hy het in hulle sinagoges geleer en is deur almal geprys. 
+###### v16
+Toe kom Hy in Násaret waar Hy opgevoed was; en soos Hy gewoond was, gaan Hy op die sabbatdag in die sinagoge en staan op om te lees. 
+###### v17
+En die boek van die profeet Jesaja is aan Hom oorhandig; en toe Hy die boek oopmaak, kry Hy die plek waar geskrywe is: 
+###### v18
+Die Gees van die Here is op My, omdat Hy My gesalf het om die evangelie aan die armes te bring. Hy het My gestuur om die wat verbryseld van hart is, te genees; 
+###### v19
+om aan gevangenes vrylating te verkondig en aan blindes herstel van gesig; om die wat gebroke is, in vryheid weg te stuur; om die aangename jaar van die Here aan te kondig. 
+###### v20
+En nadat Hy die boek toegemaak en aan die dienaar teruggegee het, gaan Hy sit, en die oë van almal in die sinagoge was op Hom gevestig. 
+###### v21
+Toe begin Hy vir hulle te sê: Vandag is hierdie Skrif in julle ore vervul. 
+###### v22
+En almal het vir Hom getuienis gegee en was verwonderd oor die aangename woorde wat uit sy mond kom; en hulle sê: Is Hy nie die seun van Josef nie? 
+###### v23
+En Hy antwoord hulle: Julle sal My ongetwyfeld hierdie spreekwoord toevoeg: Geneesheer, genees uself! Alles wat ons hoor wat in Kapérnaüm gebeur het, doen dit hier in u vaderstad ook. 
+###### v24
+En Hy sê: Voorwaar Ek sê vir julle, geen profeet is aangenaam in sy vaderland nie. 
+###### v25
+Maar Ek sê vir julle met waarheid, daar was baie weduwees in Israel in die dae van Elía toe die hemel toegesluit was drie jaar en ses maande lank, toe daar 'n groot hongersnood gekom het in die hele land, 
+###### v26
+en na nie een van hulle is Elía gestuur nie, behalwe na Sarfat in Sidon, na 'n weduwee. 
+###### v27
+En daar was baie melaatses in Israel in die tyd van Elísa, die profeet, en nie een van hulle is gereinig nie, behalwe Naäman, die Síriër. 
+###### v28
+En almal in die sinagoge is met woede vervul toe hulle dit hoor; 
+###### v29
+en hulle het opgestaan en Hom uit die stad uitgedryf en Hom gebring tot op die rand van die berg waarop hulle stad gebou was, om Hom van die krans af te gooi. 
+###### v30
+Maar Hy het tussen hulle deur geloop en weggegaan. 
+###### v31
+En Hy het afgekom na Kapérnaüm, 'n stad van Galiléa, en hulle op die sabbat geleer. 
+###### v32
+En hulle was verslae oor sy leer, want sy woord was met gesag. 
+###### v33
+En in die sinagoge was daar 'n man met die gees van 'n onreine duiwel, en hy het met 'n groot stem uitgeskreeu 
+###### v34
+en gesê: Ha! wat het ons met U te doen, Jesus, Nasaréner? Het U gekom om ons te verdelg? Ek ken U, wie U is: die Heilige van God! 
+###### v35
+En Jesus het hom bestraf en gesê: Bly stil, en gaan uit hom uit! En die duiwel het hom tussen hulle neergegooi en uit hom uitgegaan sonder om hom seer te maak. 
+###### v36
+Toe kom daar verbaasdheid oor almal, en hulle praat met mekaar en sê: Wat vir 'n woord is dit, dat Hy met gesag en mag die onreine geeste gebied, en hulle gaan uit! 
+###### v37
+En daar het 'n gerug aangaande Hom uitgegaan na elke plek van die omgewing. 
+###### v38
+En Hy het opgestaan uit die sinagoge en in die huis van Simon gekom. En Simon se skoonmoeder was aangetas deur 'n hewige koors, en hulle het Hom geraadpleeg oor haar. 
+###### v39
+Toe gaan Hy oor haar staan en bestraf die koors, en dit het haar verlaat, en sy het onmiddellik opgestaan en hulle bedien. 
+###### v40
+En toe die son ondergaan, het almal hulle siekes, mense met allerhande kwale, na Hom gebring, en Hy het een vir een van hulle die hande opgelê en hulle gesond gemaak. 
+###### v41
+En duiwels het ook uit baie uitgegaan en geskreeu en gesê: U is die Christus, die Seun van God! En Hy het hulle bestraf en nie toegelaat om te praat nie, omdat hulle geweet het dat Hy die Christus was. 
+###### v42
+En toe dit dag geword het, het Hy uitgegaan en na 'n verlate plek vertrek; en die skare het Hom gesoek en by Hom gekom en Hom teëgehou, dat Hy nie van hulle sou weggaan nie. 
+###### v43
+Maar Hy het vir hulle gesê: Ek moet aan die ander stede ook die evangelie van die koninkryk van God bring, want daarvoor is Ek gestuur. 
+###### v44
+En Hy het verder in die sinagoges van Galiléa gepreek. 

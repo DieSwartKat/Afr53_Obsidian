@@ -1,0 +1,55 @@
+# Romeine 4
+
+[[Rom-03|← Romeine 03]] | [[Romeine]] | [[Rom-05|Romeine 05 →]]
+***
+
+###### v1
+Wat sal ons dan sê, het Abraham, ons vader na die vlees, verkry? 
+###### v2
+Want as Abraham uit die werke geregverdig is, het hy iets om op te roem, maar nie teenoor God nie. 
+###### v3
+Want wat sê die Skrif? Abraham het in God geglo, en dit is hom tot geregtigheid gereken. 
+###### v4
+Maar aan hom wat werk, word die loon nie na guns toegereken nie, maar na verdienste; 
+###### v5
+aan hom egter wat nie werk nie, maar glo in Hom wat die goddelose regverdig, word sy geloof tot geregtigheid gereken. 
+###### v6
+Soos Dawid ook die mens salig spreek aan wie God geregtigheid toereken sonder werke: 
+###### v7
+Welgeluksalig is hulle wie se ongeregtighede vergewe en wie se sondes bedek is. 
+###### v8
+Welgeluksalig is die man aan wie die Here die sonde nie toereken nie. 
+###### v9
+Hierdie saligspreking dan, sien dit op die besnedenes of ook op die onbesnedenes? Want ons sê: Aan Abraham is die geloof tot geregtigheid gereken. 
+###### v10
+Hoe is dit dan toegereken toe hy besnede of onbesnede was? Nie as besnedene nie, maar as onbesnedene. 
+###### v11
+En hy het die teken van die besnydenis ontvang as 'n seël van die geregtigheid van die geloof toe hy nog nie besny was nie; dat hy die vader sou wees van almal wat glo terwyl hulle onbesnede is, sodat ook aan hulle die geregtigheid toegereken sou word; 
+###### v12
+en ook 'n vader van die besnydenis vir die wat nie alleen uit die besnydenis is nie, maar ook wandel in die voetstappe van die geloof van ons vader Abraham toe hy onbesnede was. 
+###### v13
+Want die belofte dat hy erfgenaam van die wêreld sou wees, het Abraham of sy nageslag nie deur die wet verkry nie, maar deur die geregtigheid van die geloof. 
+###### v14
+Want as hulle wat uit die wet is, erfgename is, dan het die geloof waardeloos geword en die belofte tot niet geraak. 
+###### v15
+Want die wet werk toorn; maar waar geen wet is nie, daar is ook geen oortreding nie. 
+###### v16
+Daarom is dit uit die geloof, sodat dit volgens genade kan wees en die belofte kan vasstaan vir die hele nageslag; nie alleen vir die wat uit die wet is nie, maar ook vir die wat uit die geloof van Abraham is, die vader van ons almal 
+###### v17
+soos geskrywe is: Ek het jou 'n vader van baie nasies gemaak voor die aangesig van God in wie hy geglo het, wat die dode lewend maak en die dinge wat nie bestaan nie, roep asof hulle bestaan. 
+###### v18
+Hy het teen hoop op hoop geglo dat hy vader sou word van baie volke volgens wat gesê was: So sal jou nageslag wees. 
+###### v19
+En sonder om te verswak in die geloof het hy, al was hy omtrent honderd jaar oud, nie gelet op sy eie liggaam wat alreeds verstorwe was, en op die verstorwe toestand van die moederskoot van Sara nie. 
+###### v20
+En hy het nie deur ongeloof aan die belofte van God getwyfel nie, maar hy is versterk deur die geloof en het aan God die eer gegee 
+###### v21
+en was ten volle oortuig dat Hy ook die mag het om te doen wat Hy beloof het. 
+###### v22
+Daarom is dit hom ook tot geregtigheid gereken. 
+###### v23
+Maar dit is nie alleen om sy ontwil geskrywe dat dit hom toegereken is nie, 
+###### v24
+maar ook om ons ontwil aan wie dit toegereken sal word, ons wat glo in Hom wat Jesus, onse Here, uit die dode opgewek het, 
+###### v25
+wat oorgelewer is ter wille van ons misdade en opgewek is ter wille van ons regverdigmaking. 

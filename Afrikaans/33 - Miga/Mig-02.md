@@ -1,0 +1,31 @@
+# Miga 2
+
+[[Mig-01|← Miga 01]] | [[Miga]] | [[Mig-03|Miga 03 →]]
+***
+
+###### v1
+Wee die wat onreg uitdink en kwaad smee op hulle bedde; by die môrelig voer hulle dit uit, want dit is in die mag van hulle hand. 
+###### v2
+Ja, hulle begeer velde en roof dit; ook huise en neem dit. So pleeg hulle dan geweld teenoor die man en sy huis, teenoor die mens en sy erfdeel. 
+###### v3
+Daarom, so sê die HERE: Kyk, Ek bedink onheil teen hierdie geslag, waar julle jul nekke nie sal kan uittrek nie, en waarby julle nie regop sal kan loop nie; want dit sal 'n tyd van onheil wees! 
+###### v4
+In dié dag sal hulle 'n spotlied oor julle aanhef en 'n klaaglied sing: Dit is gedaan — sal hulle sê — ons is heeltemal verwoes; die eiendom van my volk laat Hy van besitter verander. Hoe neem Hy dit van my af! Aan die afvalliges deel Hy ons velde uit. 
+###### v5
+Daarom sal daar vir jou niemand wees wat die meetsnoer werp in 'n erfdeel in die vergadering van die HERE nie. 
+###### v6
+Moet nie profeteer nie! sê die valse profete. As 'n mens hieroor nie mag profeteer nie, sal die beskimping nie ophou nie! 
+###### v7
+Mag dit gesê word, o huis van Jakob: Sou die HERE dan ongeduldig wees? Of is dit sy dade? Is my woorde nie vriendelik teenoor hom wat as opregte wandel nie? 
+###### v8
+Maar reeds vroeër het my volk vyandig opgetree. Julle pluk die mantel af, weg van die kleed van die wat in gerustheid verbygaan, wat afkerig is van oorlog. 
+###### v9
+Die vroue van my volk verdryf julle uit die huis wat hulle liefhet; van hulle kinders neem julle my sieraad weg in ewigheid. 
+###### v10
+Staan op en gaan heen! Want nie hiér is die rusplek nie, weens die onreinheid wat verwoesting aanrig, ja, 'n onherstelbare verwoesting. 
+###### v11
+As iemand wind nawandel en bedrieglik lieg en sê: Ek sal vir jou profeteer by wyn en sterk drank — dan sou hy vir hierdie volk 'n profeet wees! 
+###### v12
+Gewis sal Ek jou geheel en al versamel, o Jakob! Gewis sal Ek vergader die oorblyfsel van Israel; almal bymekaarbring soos skape in 'n kraal, soos 'n kudde in sy weiveld; en dit sal dreun van mense. 
+###### v13
+Die deurbreker sal optrek voor hulle uit: hulle sal deurbreek en deur die poort intrek en daardeur uittrek; en hulle koning sal voor hulle uit gaan, en die HERE heeltemal vooraan. 

@@ -1,0 +1,31 @@
+# Openbaring 8
+
+[[Ope-07|← Openbaring 07]] | [[Openbaring]] | [[Ope-09|Openbaring 09 →]]
+***
+
+###### v1
+En toe Hy die sewende seël oopgemaak het, kom daar stilte in die hemel omtrent 'n halfuur lank. 
+###### v2
+En ek het die sewe engele gesien wat voor God staan, en sewe basuine is aan hulle gegee. 
+###### v3
+En 'n ander engel het gekom en met 'n goue wierookbak by die altaar gaan staan, en baie reukwerk is aan hom gegee, om dit met die gebede van al die heiliges op die goue altaar voor die troon te lê; 
+###### v4
+en die rook van die reukwerk het met die gebede van die heiliges uit die hand van die engel opgegaan voor God. 
+###### v5
+En die engel het die wierookbak geneem en dit met vuur van die altaar volgemaak en dit op die aarde gegooi; en daar het stemme gekom en donderslae en weerligte en aardbewing. 
+###### v6
+En die sewe engele met die sewe basuine het hulle gereed gemaak om te blaas. 
+###### v7
+En die eerste engel het geblaas, en daar het hael en vuur gekom met bloed gemeng, en dit is op die aarde gegooi. En 'n derde van die bome het verbrand, en al die groen gras het verbrand. 
+###### v8
+En die tweede engel het geblaas, en iets soos 'n groot berg wat brand met vuur, is in die see gegooi. En 'n derde van die see het bloed geword, 
+###### v9
+en 'n derde van die lewende skepsele in die see het gesterwe, en 'n derde van die skepe het vergaan. 
+###### v10
+En die derde engel het geblaas, en 'n groot ster wat soos 'n fakkel brand, het uit die hemel geval, en dit het geval op 'n derde van die riviere en op die waterfonteine. 
+###### v11
+En die naam van die ster word genoem Alsem; en 'n derde van die waters het als geword, en baie mense het gesterwe van die water, omdat dit bitter geword het. 
+###### v12
+En die vierde engel het geblaas, en 'n derde van die son is getref en 'n derde van die maan en 'n derde van die sterre, sodat 'n derde van hulle donker sou word en die dag vir sy derde deel nie lig sou gee nie, en die nag net so. 
+###### v13
+En ek het gesien en gehoor 'n engel wat in die middel van die hemel vlieg, wat met 'n groot stem sê: Wee, wee, wee hulle wat op die aarde woon, vanweë die orige geluide van die basuin van die drie engele wat nog sal blaas! 

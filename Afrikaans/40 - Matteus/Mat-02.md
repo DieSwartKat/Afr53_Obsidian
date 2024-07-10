@@ -1,0 +1,51 @@
+# Matteus 2
+
+[[Mat-01|← Matteus 01]] | [[Matteus]] | [[Mat-03|Matteus 03 →]]
+***
+
+###### v1
+En toe Jesus te Betlehem in Judéa gebore is, in die dae van koning Herodes, het daar wyse manne uit die Ooste in Jerusalem aangekom 
+###### v2
+en gesê: Waar is die Koning van die Jode, wat gebore is? Want ons het sy ster in die Ooste gesien en gekom om Hom hulde te bewys. 
+###### v3
+En toe koning Herodes dit hoor, was hy ontsteld en die hele Jerusalem saam met hom; 
+###### v4
+en hy het al die owerpriesters en die skrifgeleerdes van die volk bymekaar laat kom en by hulle navraag gedoen waar die Christus gebore sou word. 
+###### v5
+En hulle het vir hom gesê: Te Betlehem in Judéa, want so is daar deur die profeet geskrywe: 
+###### v6
+En jy, Betlehem, land van Juda, is volstrek nie die geringste onder die vorste van Juda nie, want uit jou sal 'n leidsman voortkom wat vir my volk Israel 'n herder sal wees. 
+###### v7
+Toe het Herodes die wyse manne in die geheim geroep en hulle na die tyd van die ster se verskyning uitgevra; 
+###### v8
+en hy het hulle na Betlehem gestuur en gesê: Gaan doen noukeurig ondersoek na die Kindjie, en as julle Hom vind, laat my weet, sodat ek ook kan gaan en Hom hulde bewys. 
+###### v9
+En nadat hulle die koning aangehoor het, het hulle vertrek. En kyk, die ster wat hulle in die Ooste gesien het, gaan voor hulle uit totdat hy kom en bly staan bo-oor die plek waar die Kindjie was. 
+###### v10
+En toe hulle die ster sien, het hulle hul met baie groot blydskap verheug. 
+###### v11
+En hulle het in die huis gegaan en die Kindjie by Maria, sy moeder, gevind en neergeval en Hom hulde bewys. Daarop maak hulle hul skatte oop en bring vir Hom geskenke: goud en wierook en mirre. 
+###### v12
+En omdat hulle in 'n droom 'n goddelike waarskuwing ontvang het om nie na Herodes terug te keer nie, het hulle met 'n ander pad na hul land teruggegaan. 
+###### v13
+En toe hulle teruggegaan het, verskyn daar 'n engel van die HERE in 'n droom aan Josef en sê: Staan op, neem die Kindjie en sy moeder en vlug na Egipte, en bly daar totdat ek jou sê; want Herodes gaan die Kindjie soek om Hom dood te maak. 
+###### v14
+Hy het toe opgestaan, die Kindjie en sy moeder in die nag geneem en na Egipte vertrek. 
+###### v15
+En hy was daar tot die dood van Herodes, sodat die woord vervul sou word wat die Here gespreek het deur die profeet: Uit Egipte het Ek my Seun geroep. 
+###### v16
+Toe Herodes sien dat hy deur die wyse manne mislei was, het hy baie woedend geword en gestuur en in Betlehem en in al die omstreke daarvan al die seuntjies van twee jaar en daaronder laat ombring, ooreenkomstig die tyd wat hy van die wyse manne uitgevra het. 
+###### v17
+Toe is vervul wat deur Jeremia, die profeet, gespreek is toe hy gesê het: 
+###### v18
+'n Stem is in Rama gehoor: rouklag en geween en groot gekerm; Ragel beween haar kinders en wil nie vertroos word nie, omdat hulle daar nie meer is nie. 
+###### v19
+En ná die dood van Herodes het daar 'n engel van die Here in 'n droom aan Josef in Egipte verskyn 
+###### v20
+en gesê: Staan op, neem die Kindjie en sy moeder, en gaan na die land van Israel; want hulle is dood wat die lewe van die Kindjie gesoek het. 
+###### v21
+En hy het opgestaan, die Kindjie en sy moeder geneem en in die land van Israel gekom. 
+###### v22
+Maar toe hy hoor dat Archeláüs oor Judéa koning was in die plek van sy vader Herodes, was hy bevrees om daarheen te gaan. En hy het 'n goddelike waarskuwing in 'n droom ontvang en na die streke van Galiléa teruggekeer. 
+###### v23
+En hy het gaan woon in 'n stad met die naam van Násaret, sodat vervul sou word wat deur die profete gespreek is, dat Hy Nasaréner genoem sou word. 

@@ -1,0 +1,55 @@
+# Eksodus 2
+
+[[Eks-01|← Eksodus 01]] | [[Eksodus]] | [[Eks-03|Eksodus 03 →]]
+***
+
+###### v1
+En 'n man uit die huis van Levi het gegaan en 'n dogter van Levi geneem. 
+###### v2
+En die vrou het swanger geword en 'n seun gebaar. En toe sy sien dat hy mooi was, het sy hom drie maande lank weggesteek. 
+###### v3
+Maar toe sy hom nie langer verborge kon hou nie, het sy vir hom 'n mandjie van biesies geneem en dit met lymgrond en pik bestryk; en sy het die seuntjie daarin neergelê en dit in die riete aan die kant van die Nyl gesit. 
+###### v4
+En sy suster het op 'n afstand gaan staan om te wete te kom wat met hom sou gebeur. 
+###### v5
+En Farao se dogter het na die Nyl afgegaan om 'n bad te neem, terwyl haar diensmeisies aan die kant van die Nyl heen en weer geloop het. Toe sien sy die mandjie tussen die riete en stuur haar slavin en laat dit haal. 
+###### v6
+Nadat sy dit oopgemaak het, sien sy die kind, en kyk, dit was 'n seuntjie wat huil! En sy het hom jammer gekry en gesê: Dit is een van die kinders van die Hebreërs. 
+###### v7
+Toe sê sy suster aan die dogter van Farao: Sal ek vir u 'n pleegmoeder uit die Hebreeuse vroue gaan roep, dat sy vir u die seuntjie kan soog? 
+###### v8
+En Farao se dogter antwoord haar: Ja. En die jongmeisie het geloop en die seuntjie se moeder geroep. 
+###### v9
+Daarop sê Farao se dogter vir haar: Neem hierdie seuntjie en soog hom vir my, en ek sal jou loon gee. En die vrou het die seuntjie geneem en hom gesoog. 
+###### v10
+En toe die seuntjie groot geword het, bring sy hom na Farao se dogter; en hy het haar seun geword. En sy het hom Moses genoem en gesê: Ek het hom mos uit die water getrek. 
+###### v11
+En in dié dae toe Moses al groot was, het hy na sy broers uitgegaan en hulle harde arbeid aangesien. En hy het gesien hoe 'n Egiptiese man 'n Hebreeuse man, een uit sy broers, slaan. 
+###### v12
+En hy het hierheen en daarheen gekyk, en toe hy sien dat daar niemand was nie, het hy die Egiptenaar doodgeslaan en hom in die sand begrawe. 
+###### v13
+Die volgende dag het hy weer uitgegaan, en daar was twee Hebreeuse manne wat met mekaar veg. Hy vra toe vir die een wat ongelyk gehad het: Waarom slaan jy jou naaste? 
+###### v14
+En hy antwoord: Wie het jou as owerste en regter oor ons aangestel? Dink jy om my dood te slaan soos jy die Egiptenaar omgebring het? En Moses het gevrees en gesê: Waarlik, die saak het bekend geword! 
+###### v15
+En toe Farao van dié saak hoor, het hy probeer om Moses dood te maak. Maar Moses het van Farao af weggevlug en in die land Mídian gaan woon. En hy het by 'n put gesit. 
+###### v16
+En die priester van Mídian het sewe dogters gehad: dié het gekom om te put en die drinkbakke vol te maak om hulle vader se kleinvee te laat drink. 
+###### v17
+Maar die veewagters het gekom en hulle weggedrywe. Toe staan Moses op en help hulle en laat hulle vee drink. 
+###### v18
+En toe hulle by hul vader Réhuel kom, sê hy: Waarom kom julle vandag so gou? 
+###### v19
+En hulle antwoord: 'n Egiptiese man het ons uit die hand van die veewagters verlos; en hy het ook volop vir ons geput en die vee laat drink. 
+###### v20
+Daarop sê hy vir sy dogters: En waar is hy? Waarom het julle die man dan daar laat staan? Roep hom, dat hy brood kan eet. 
+###### v21
+En Moses het ingewillig om by die man te bly, en hy het aan Moses sy dogter Sippóra gegee. 
+###### v22
+En toe sy 'n seun baar, het hy hom Gersom genoem. Want hy het gesê: Ek het 'n vreemdeling in 'n vreemde land geword. 
+###### v23
+En in daardie lang tyd het die koning van Egipte gesterwe. En die kinders van Israel het gesug en geweeklaag vanweë die slawerny. En hulle geroep om hulp oor hulle slawerny het opgeklim tot God. 
+###### v24
+En God het hulle gekerm gehoor, en God het gedink aan sy verbond met Abraham, met Isak en met Jakob. 
+###### v25
+En God het die kinders van Israel aangesien, en God het hulle geken. 

@@ -1,0 +1,51 @@
+# Genesis 40
+
+[[Gen-39|← Genesis 39]] | [[Genesis]] | [[Gen-41|Genesis 41 →]]
+***
+
+###### v1
+Ná hierdie dinge het die skinker van die koning van Egipte en die bakker hulle misgaan jeens hulle heer, die koning van Egipte, 
+###### v2
+sodat Farao baie kwaad geword het vir sy twee hofdienaars, die voorman van die skinkers en die voorman van die bakkers. 
+###### v3
+En hy het hulle in bewaring gegee in die huis van die owerste van die lyfwag, in die gevangenis, die plek waar Josef gevange was. 
+###### v4
+En die owerste van die lyfwag het Josef by hulle aangestel om hulle te bedien. En hulle was 'n tyd lank in bewaring. 
+###### v5
+En hulle het altwee 'n droom gehad, elkeen sy droom, in dieselfde nag, elkeen 'n droom met besondere betekenis, die skinker en die bakker van die koning van Egipte, wat in die gevangenis gevange gesit het. 
+###### v6
+En Josef het die volgende môre by hulle gekom en gesien dat hulle ontstemd was. 
+###### v7
+Toe vra hy die hofdienaars van Farao wat by hom in bewaring was in die huis van sy heer, en sê: Waarom lyk julle aangesig vandag so droewig? 
+###### v8
+En hulle antwoord hom: Ons het 'n droom gehad, en daar is niemand wat dit kan uitlê nie. En Josef vra hulle: Is uitlegging nie 'n saak van God nie? Vertel my tog. 
+###### v9
+Toe vertel die voorman van die skinkers aan Josef sy droom en sê vir hom: In my droom was daar 'n wingerdstok voor my, 
+###### v10
+en aan die wingerdstok was drie ranke; en skaars het hy gebot of sy bloeisel was uit, sy trosse het ryp druiwe geword. 
+###### v11
+En die beker van Farao was in my hand. En ek het die druiwe geneem en dit in die beker van Farao uitgedruk en die beker in die hand van Farao gegee. 
+###### v12
+Toe sê Josef vir hom: Dit is die uitlegging daarvan: die drie ranke is drie dae. 
+###### v13
+Binne drie dae sal Farao jou hoof verhef — jou in jou rang herstel; en jy sal die beker van Farao in sy hand gee net soos vroeër toe jy sy skinker was. 
+###### v14
+Hou my tog net in gedagte as dit met jou goed gaan, en bewys my tog 'n guns en maak melding van my by Farao en bring my uit hierdie huis uit; 
+###### v15
+want ek is gesteel, ja gesteel, uit die land van die Hebreërs, en ek het hier ook niks gedoen dat hulle my in die gevangenis gesit het nie. 
+###### v16
+Toe die voorman van die bakkers sien dat hy 'n gunstige uitlegging gegee het, sê hy aan Josef: Ook in my droom — toe was daar drie mandjies met witbrood op my hoof, 
+###### v17
+en in die boonste mandjie was allerhande eetware vir Farao deur bakkers klaargemaak, en die voëls het dit uit die mandjie bo-op my hoof weggepik. 
+###### v18
+Toe antwoord Josef en sê: Dit is die uitlegging daarvan — die drie mandjies is drie dae. 
+###### v19
+Binne drie dae sal Farao jou hoof bo-oor jou verhef — hy sal jou aan 'n paal ophang, en die voëls sal jou vlees van jou af wegpik. 
+###### v20
+En op die derde dag, die verjaarsdag van Farao, het hy 'n maaltyd vir al sy dienaars berei en die hoof van die voorman van die skinkers en die hoof van die voorman van die bakkers te midde van sy dienaars verhef — 
+###### v21
+hy het die voorman van die skinkers herstel in sy skinkersamp, sodat hy die beker in die hand van Farao kon gee, 
+###### v22
+maar die voorman van die bakkers het hy opgehang soos Josef dit aan hulle uitgelê het. 
+###### v23
+En die voorman van die skinkers het nie aan Josef gedink nie, maar hom vergeet. 

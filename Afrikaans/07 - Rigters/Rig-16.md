@@ -1,0 +1,67 @@
+# Rigters 16
+
+[[Rig-15|← Rigters 15]] | [[Rigters]] | [[Rig-17|Rigters 17 →]]
+***
+
+###### v1
+En Simson het na Gasa gegaan en daar 'n hoer gesien en by haar ingegaan. 
+###### v2
+Toe die Gasiete die tyding kry: Simson het hier ingekom, omsingel hulle hom en lê hom die hele nag voor by die stadspoort, maar die hele nag het hulle hul stilgehou en gesê: Teen dagbreek sal ons hom doodmaak. 
+###### v3
+En Simson het gelê tot middernag; maar teen middernag het hy opgestaan en die deure van die stadspoort en die twee deurposte gegryp en dié met grendel en al uitgeruk en op sy skouers gesit en dit opgedra na die top van die berg wat teenoor Hebron lê. 
+###### v4
+Daarna het hy 'n vrou in die dal Sorek liefgekry, wie se naam Delíla was. 
+###### v5
+Toe kom die vorste van die Filistyne na haar op en sê vir haar: Haal hom oor en vind uit waardeur sy krag so groot is, en waardeur ons hom kan oorweldig en hom kan bind om hom te bedwing; dan sal ons jou elkeen elf honderd sikkels silwer gee. 
+###### v6
+Toe vra Delíla vir Simson: vertel my tog waardeur jou krag so groot is, en waarmee jy gebind kan word om jou te bedwing. 
+###### v7
+En Simson sê vir haar: As hulle my bind met sewe vars lyne wat nie uitgedroog is nie, dan sal ek swak word en wees soos 'n ander mens. 
+###### v8
+Daarop het die vorste van die Filistyne vir haar sewe vars lyne gebring wat nie uitgedroog was nie, en sy het hom daarmee gebind. 
+###### v9
+En terwyl haar spioene in die kamer klaar sit, sê sy vir hom: Die Filistyne op jou, Simson! Toe verbreek hy die lyne soos 'n vlasdraad breek as dit vuur ruik; maar sy krag het nie bekend geword nie. 
+###### v10
+Toe sê Delíla vir Simson: Kyk, jy het my bedrieg en vir my leuens vertel; vertel my nou tog waarmee jy gebind kan word. 
+###### v11
+En hy antwoord haar: As hulle my stewig vasbind met nuwe toue waarmee geen werk gedoen is nie, dan sal ek swak word en wees soos 'n ander mens. 
+###### v12
+Toe het Delíla nuwe toue geneem en hom daarmee gebind en vir hom gesê: Die Filistyne op jou, Simson! terwyl die spioene in die kamer klaarsit; maar hy het dit soos 'n draad van sy arms af verbreek. 
+###### v13
+En Delíla sê vir Simson: Tot nou toe het jy my bedrieg en vir my leuens vertel; vertel my waarmee jy gebind kan word. En hy antwoord haar: As jy die sewe haarvlegsels van my hoof met die weefsel saam invleg. 
+###### v14
+Sy druk dié toe vas met die pen en sê vir hom: Die Filistyne op jou, Simson! En hy het wakker geword uit sy slaap en die weefpen met die weefsel uitgeruk. 
+###### v15
+Toe sê sy vir hom: Hoe kan jy sê: Ek het jou lief! terwyl jou hart nie met my is nie? Drie maal het jy my nou al bedrieg en my nie meegedeel waardeur jou krag so groot is nie. 
+###### v16
+En omdat sy hom met haar woorde aldae gepers en by hom aangedring het, het hy so ongeduldig geword, dat hy kon sterf. 
+###### v17
+En hy het sy hele hart aan haar bekend gemaak en aan haar gesê: Daar het nooit 'n skeermes oor my hoof gekom nie, want ek is 'n nasireër van God van my moeder se skoot af: as ek geskeer sou word, sou my krag van my wyk en ek swak word en wees soos al die mense. 
+###### v18
+Toe Delíla sien dat hy sy hele hart aan haar bekend gemaak het, laat sy die vorste van die Filistyne roep en sê: Kom hierdie keer op, want hy het sy hele hart aan my bekend gemaak. Toe kom die vorste van die Filistyne na haar op en bring die geld met hulle saam. 
+###### v19
+En sy het hom op haar skoot aan die slaap gemaak en 'n man geroep en die sewe haarvlegsels van sy hoof afgeskeer. En sy het begin om hom te bedwing, en sy krag het van hom gewyk. 
+###### v20
+Toe sê sy: Die Filistyne op jou, Simson! En toe hy uit sy slaap wakker word, sê hy: Ek sal vry uitgaan soos die vorige kere en my losruk. Want hy het nie geweet dat die HERE van hom gewyk het nie. 
+###### v21
+Daarop het die Filistyne hom gegryp en sy oë uitgesteek en hom afgebring na Gasa en met koperkettings gebind; en hy moes maal in die gevangenis. 
+###### v22
+Maar die hare van sy hoof het weer begin groei sodra dit afgeskeer was. 
+###### v23
+En die vorste van die Filistyne het vergader om 'n groot offer te bring aan hulle god Dagon en om vrolik te wees; en hulle het gesê: Ons god het ons vyand Simson in ons hand gegee. 
+###### v24
+En toe die volk hom sien, prys hulle hul god; want hulle het gesê: Ons god het ons vyand en die rinneweerder van ons land, wat ook baie van ons laat sneuwel het, in ons hand gegee. 
+###### v25
+En toe hulle hart vrolik was, sê hulle: Roep Simson, dat hy vir ons speel; en hulle het Simson uit die gevangenis geroep; en hy het voor hulle gespeel, en hulle het hom tussen die pilare laat staan. 
+###### v26
+Daarop sê Simson aan die dienaar wat hom aan die hand hou: Laat my staan, en laat my die pilare betas waar die huis op rus, dat ek daarteen kan leun. 
+###### v27
+En die huis was vol manne en vroue, en al die vorste van die Filistyne was daar, en op die dak omtrent drie duisend manne en vroue wat kyk hoe Simson speel. 
+###### v28
+Toe roep Simson die HERE aan en sê: Here, HERE, dink tog aan my en versterk my tog net hierdie keer, o God, dat ek my oor een van my twee oë op die Filistyne kan wreek! 
+###### v29
+En Simson slaan sy arms om die twee middelste pilare waar die huis op gerus het, die een met sy regter— en die ander met sy linkerhand, en leun teen hulle aan. 
+###### v30
+En Simson sê: Laat my sterwe saam met die Filistyne! En hy buig hom met krag, sodat die huis inval op die vorste en op al die mense wat daarin was. So was dan die dooies wat hy by sy sterwe gedood het, meer as die wat hy in sy lewe gedood het. 
+###### v31
+Sy broers en sy hele familie het toe afgekom en hom opgeneem en opwaarts gebring en hom begrawe tussen Sórea en Estáol in die graf van sy vader Manóag. En hy het Israel twintig jaar lank gerig. 
